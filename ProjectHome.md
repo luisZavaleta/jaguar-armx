@@ -1,0 +1,1 @@
+AR, comenzado el día 18 de julio de 2010
